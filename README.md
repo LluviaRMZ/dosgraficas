@@ -1,1 +1,1 @@
-# dosgraficas de lluvia lizbeth ramirez ramirez 
+# dos graficas de lluvia lizbeth ramirez ramirez 
